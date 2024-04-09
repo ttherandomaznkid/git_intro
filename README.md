@@ -1,1 +1,2 @@
 Nicholas Pettus
+pettusn@oregonstate.edu
